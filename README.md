@@ -756,4 +756,4 @@ John raisd the Mountain Blade into the air. The Mountain was finally whole again
 The End.[Link](test)
 ````
 
-### The End[.](johns-story.com/bonus)
+### The End[.](bonus)
