@@ -1,7 +1,7 @@
 
 # Mountain Blade: John's Story
 
-````
+
 `					MOUNTAIN BLADE:
 						John's Story
 
@@ -67,7 +67,7 @@ and it then was infused by the power of his forbearers. And struck the dragon in
 opened up and John found himself in the underground DWARF FORTRESS!
 
 						END OF PART 1
-````
+
 
 # Dwarf Fortress: A John's Tale
 
