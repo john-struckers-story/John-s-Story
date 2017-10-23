@@ -2,7 +2,7 @@
 # Mountain Blade: John's Story
 
 
-`					MOUNTAIN BLADE:
+	`					MOUNTAIN BLADE:
 						John's Story
 
 In the distant land of Shagnusland, John Strucker was but a farmer. One day while harvesting the latest bounty 
@@ -66,13 +66,12 @@ They fought for glory for 5 days in that underground castle. John raised his swo
 and it then was infused by the power of his forbearers. And struck the dragon into the Earthcrust and a fissure
 opened up and John found himself in the underground DWARF FORTRESS!
 
-						END OF PART 1
+	END OF PART 1
 
 
 # Dwarf Fortress: A John's Tale
 
-````
-				Dwarf Fortress: A John's Tale
+	Dwarf Fortress: A John's Tale
 
 10 Years have passed since the battle against the terrible Dragonlord. John woke up from his fall through
 the Earthcrust and found himslef in the company of great KINGS of Dwarves. 
