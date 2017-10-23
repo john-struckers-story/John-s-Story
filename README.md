@@ -5,7 +5,7 @@
 `					MOUNTAIN BLADE:
 						John's Story
 
-	In the distant land of Shagnusland, John Strucker was but a farmer. One day while harvesting the latest bounty 
+In the distant land of Shagnusland, John Strucker was but a farmer. One day while harvesting the latest bounty 
 of fruits and shank, a mysterious figure sprang up from the soil. 
 	"OH MY!" John exclaimed.
 	"I AM THE SPIRIT OF THE MOUNTAIN BLADE" The wise spectre explained.
@@ -13,56 +13,56 @@ of fruits and shank, a mysterious figure sprang up from the soil.
 	"YOU MUST FIND ME SO YOU CAN LIBERATE THE LANDS OF SHAGNUSLAND"
 	"OK"
 
-	So John set out on his quest but did not know the way so he ran to his oldest friend's house. He knocked
+So John set out on his quest but did not know the way so he ran to his oldest friend's house. He knocked
 on the door and there was no answer. He broke down the door and found that his friend had been murdered by the 
 mountain men. 
-	"NOOOOOO!" John cried. "I WILL HUNT DOWN THE MOUNTAIN MEN WHEREVER THEY ARE AND KILL THEM! BUT I DO
+"NOOOOOO!" John cried. "I WILL HUNT DOWN THE MOUNTAIN MEN WHEREVER THEY ARE AND KILL THEM! BUT I DO
 NOT HAVE A BLADE TO KILL THEM WITH!"
 
-	So John went to a mountain and looked for the blade. But he did not find the blade. The Mountain Men saw
+So John went to a mountain and looked for the blade. But he did not find the blade. The Mountain Men saw
 him for miles and started shooting arrows at him. He said, "NO! NO ARROWS!". 
-	The Mountain Man Commander barked orders and threw axes at John. John knew that if he assassinated the
+The Mountain Man Commander barked orders and threw axes at John. John knew that if he assassinated the
 commander that that would end the battle right there. So he jumped over the fissure and rolled through the lines
 and punched the commander and the battle began. John's fsce was split by a smile.  
 
-	The commander swung his triple-sized battle axe at John but John was so faster that the Commander missed him
+The commander swung his triple-sized battle axe at John but John was so faster that the Commander missed him
 hit his own own men! They all died and it was one on one action. John shot him with the pistol in the eye and the
 Commander ran away without it. The commander went back to the Mountain Man King and then he was killed for disobediance.
 	
-	John continued walking toward the final goal. He wanders for 23 years over the mountain range. And then he
+John continued walking toward the final goal. He wanders for 23 years over the mountain range. And then he
 he finds it! THE MOUNTAIN BLADE. BUT IT IS BROKEN IN HALF LENGTHWAYS! 
-	"Noooooooooooooooooooo!" John explained
-	"YEEEEEEEEEEEEEEEEEEES!" The Mountain Blade said!
-	"You can speak to me?"
-	"YES BUT JUST TO YOUJOHN!"
-	"HOW DO I GET YOUR OTHER SIDE!"
-	"MY BROTHER IS HELD BY THE DEMON DRAGON LORD OF THE DEATHLANDS, HOME OF THE FIERY DEAD!"
-	"I WILL GO!"
+"Noooooooooooooooooooo!" John explained
+"YEEEEEEEEEEEEEEEEEEES!" The Mountain Blade said!
+"You can speak to me?"
+"YES BUT JUST TO YOUJOHN!"
+"HOW DO I GET YOUR OTHER SIDE!"
+"MY BROTHER IS HELD BY THE DEMON DRAGON LORD OF THE DEATHLANDS, HOME OF THE FIERY DEAD!"
+"I WILL GO!"
 	
-	So John went to the Deathlands, home of the fiery dead. When he was there he looked upon the Demon
+So John went to the Deathlands, home of the fiery dead. When he was there he looked upon the Demon
 Dragon Lord's keep, Castle LIchtenstein. He broke down the doors with the strength of old and tore up the 
 dragon guards and looked for the sword's brother.
-	"WHERE ARE YOU!?!?!?" ejaculated John.
-	"HERE" he heard back.
-	THE DRAGON WAS THERE!!!!!!!!!!!!!!!!!!!!(;!!!!!!!!!!!!
+"WHERE ARE YOU!?!?!?" ejaculated John.
+"HERE" he heard back.
+THE DRAGON WAS THERE!!!!!!!!!!!!!!!!!!!!(;!!!!!!!!!!!!
 	
 The half sword that John carried began to glow sensing its brother. 
-	"I AM THE OTHER HALF!!!!" Said the dragon.
-	"NOOOOOOOO!!!5" cried John.
+"I AM THE OTHER HALF!!!!" Said the dragon.
+"NOOOOOOOO!!!5" cried John.
 They fought and clanged their swords. The dragon blew fire out of this mouthes and John clanged it away with his'
 sword. As the dragon was about to deliver his killing stroke, a figure jumped out of the darkness and took the 
 hit for John.
-	"WHO ARE YOU!!?!??!" asked John.
-	The shadows retreated to reveal it was the Mountain Man Commander!!! 
-	"Kill the dragon as it is your only chance and I am also your uncle and this dragon is my brother." said 
+"WHO ARE YOU!!?!??!" asked John.
+The shadows retreated to reveal it was the Mountain Man Commander!!! 
+"Kill the dragon as it is your only chance and I am also your uncle and this dragon is my brother." said 
 the Mountain Man Commander.
-	"WAIT!" explained John. "YOU MEAN THAT...........?"
-	"NOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO!"
+"WAIT!" explained John. "YOU MEAN THAT...........?"
+"NOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO!"
 
-	"I WILL KILL YOU FOR WHAT YOU HAVE DID TO MY FAMILY!" outcried John!
-	"No John" spouted the dragon, "I am the family"
-	"I WILL NOT LET YOU LIVE TO SEE THE EDGE OF THE DAY!" said John
-	They fought for glory for 5 days in that underground castle. John raised his sword towards the heavens,
+"I WILL KILL YOU FOR WHAT YOU HAVE DID TO MY FAMILY!" outcried John!
+"No John" spouted the dragon, "I am the family"
+"I WILL NOT LET YOU LIVE TO SEE THE EDGE OF THE DAY!" said John
+They fought for glory for 5 days in that underground castle. John raised his sword towards the heavens,
 and it then was infused by the power of his forbearers. And struck the dragon into the Earthcrust and a fissure
 opened up and John found himself in the underground DWARF FORTRESS!
 
