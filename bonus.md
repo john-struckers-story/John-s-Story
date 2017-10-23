@@ -1,11 +1,10 @@
 # John's Story Bonus Time: The Lengend of the Secret Starcrafter
 
-````
-				John;s Story Bonus Time: 
-					The Legend of the Secret Starcrafter
+	John;s Story Bonus Time: 
+		The Legend of the Secret Starcrafter
 
 John was dead in the kingdom but the kings did not die with him. Duncan was dead too because time went by.
-	John's son was named Johnny Tran and he was the new king. He went by John for shot. 
+John's son was named Johnny Tran and he was the new king. He went by John for shot. 
 
 King John looked through the kingdom's telescope and hailed the new day as the sun rose from the blackness. Nigh.
 Figh it was a new day and John was not happy. He wanted to rule more than just the kingdom of Shagnusland but nay
@@ -69,4 +68,3 @@ John explained the foul time gthat was upon them.
 John grimaced. "Sounds like an old fiend both foul has returned. 10 years ago there was a beast that ravaged the
 entire world. He claimed to eat all life but he was stopped by the Legendary King Duncan when he gave his life
 to stop it.......AHHHHHHHH 
-````
