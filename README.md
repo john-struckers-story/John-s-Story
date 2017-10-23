@@ -2,16 +2,16 @@
 # Mountain Blade: John's Story
 
 
-	`					MOUNTAIN BLADE:
-						John's Story
+	MOUNTAIN BLADE:
+	John's Story
 
 In the distant land of Shagnusland, John Strucker was but a farmer. One day while harvesting the latest bounty 
 of fruits and shank, a mysterious figure sprang up from the soil. 
-	"OH MY!" John exclaimed.
-	"I AM THE SPIRIT OF THE MOUNTAIN BLADE" The wise spectre explained.
-	"I SEE." said John.
-	"YOU MUST FIND ME SO YOU CAN LIBERATE THE LANDS OF SHAGNUSLAND"
-	"OK"
+"OH MY!" John exclaimed.
+"I AM THE SPIRIT OF THE MOUNTAIN BLADE" The wise spectre explained.
+"I SEE." said John.
+"YOU MUST FIND ME SO YOU CAN LIBERATE THE LANDS OF SHAGNUSLAND"
+"OK"
 
 So John set out on his quest but did not know the way so he ran to his oldest friend's house. He knocked
 on the door and there was no answer. He broke down the door and found that his friend had been murdered by the 
@@ -75,260 +75,259 @@ opened up and John found himself in the underground DWARF FORTRESS!
 
 10 Years have passed since the battle against the terrible Dragonlord. John woke up from his fall through
 the Earthcrust and found himslef in the company of great KINGS of Dwarves. 
-	"What man hath come down from the Earthcrust and intrudeded upon our Sacred Council of Undergrowth Dwarves."
-	"I am John I have come from the Distant Lands of Shagnusland to claim my right to the throne of
-	 Shagnusland." said John to the dwarves."
-	"That title is NOT YOURS TO TAKE" explained the Dwarf King of the Undermountain.
+"What man hath come down from the Earthcrust and intrudeded upon our Sacred Council of Undergrowth Dwarves."
+"I am John I have come from the Distant Lands of Shagnusland to claim my right to the throne of
+Shagnusland." said John to the dwarves."
+"That title is NOT YOURS TO TAKE" explained the Dwarf King of the Undermountain.
 
 John was sent to the dwarf prison and was given rations but he did not eat them. He looked to his side and saw
 that his cell mate was THE MOUNTAIN MAN COMMANDER! 
-	"FATHER!" said John
-	"Come here son and I will show you the ways of the Mountain." pleaded Mountain Man Commander"
+"FATHER!" said John
+"Come here son and I will show you the ways of the Mountain." pleaded Mountain Man Commander"
 The Mountain Man Commander trained John in the Mountain Arts. The strength of the Mountain blade half increased
 tenfold and John cut through the steel box that confined him. 
-	"LET US GO UNCLE AND WE WILL ESCAPE!" said John
-	"I cannot continue for my strength has been sapped from the training of you and I cannot continue..."
+"LET US GO UNCLE AND WE WILL ESCAPE!" said John
+"I cannot continue for my strength has been sapped from the training of you and I cannot continue..."
 explained the Father of the Mountain.
-	"I will never forget your deeds.""I will never stop fighting for your case." explained John.
+"I will never forget your deeds.""I will never stop fighting for your case." explained John.
 John inserted the blade into the Mountain Man Commander's heart and felt the tang as the heart stopped beating. 
-	"May your travels in the afterlife bring you many greetings from your loved ones. And never stop fighting"
+"May your travels in the afterlife bring you many greetings from your loved ones. And never stop fighting"
 Joh leaps from the prison with vigor and lands on the dwarf kings, crushing their ambitions.  
-	"WHY!" yelled all the dwarf in unison.  "Then the goblins that the dwarves were at war with decided to make
+"WHY!" yelled all the dwarf in unison.  "Then the goblins that the dwarves were at war with decided to make
 their move for once and all, they came out of their holes with pitchfolks chanting the war cry of their people. 
-	"I will do what needs to be done to win this fight so i can escape from this city and then i can return to
+"I will do what needs to be done to win this fight so i can escape from this city and then i can return to
 the people i once belonged to and i can save my father from the evil lord that rules the upper worlds.  "
  
-	The goblins were doing their attack and John knew that if he was going to end the War of the Underdark 
+The goblins were doing their attack and John knew that if he was going to end the War of the Underdark 
 then he would have to kill the leader of the dwarfs. As he was running to the royal guards he was stopped by
 the royal guards and they used their pikes to keep him at bay but then when all hope seemed lost, a pitchfolk
 commando squadron came in guns-blazing and mowed over the dwarfen royal guard. 
-	"GO JOHN! WE WILL COVER YOU!" said the Pitchfolk Commando King.
-	"THANKS MAN!" replied JOHN!
+"GO JOHN! WE WILL COVER YOU!" said the Pitchfolk Commando King.
+"THANKS MAN!" replied JOHN!
 	
-	John got to the King Dwarf and shouted "GIVE ME WHAT RIGHTFULLY BELONGS TO MY FAMILY AND I WILL SPARE 
+John got to the King Dwarf and shouted "GIVE ME WHAT RIGHTFULLY BELONGS TO MY FAMILY AND I WILL SPARE 
 YOUR NATION!" said John
-	"YOUR MADNESS IS UNPROVOKED AND UNJUSTIFIED. I WILL NOT HAVE IT!" said King Lawgrim Lowbrow.
-	As the ground split apart the two of them battled and the Dwarf King got into his dark machine and said,
+"YOUR MADNESS IS UNPROVOKED AND UNJUSTIFIED. I WILL NOT HAVE IT!" said King Lawgrim Lowbrow.
+As the ground split apart the two of them battled and the Dwarf King got into his dark machine and said,
 "IT IS ENDED FOR YOU!" The saw blade got just 1 inch from John when an explosion gripped the cave and the machine
 fell over backwards.
-	"What was that?" asked John?
-	"DO NOT FEAR" Said The Mountain Man Commander.
-	The pitchfolk hit squad saluted the Mountain Man Commander as he was their secret leader.
-	"I HAVE ALWAYS BEEN AT YOUR SIDE JOHN AND I ALWAYS WILL YOU DO NOT FEAR" pronounced the Mountain Man 
+"What was that?" asked John?
+"DO NOT FEAR" Said The Mountain Man Commander.
+The pitchfolk hit squad saluted the Mountain Man Commander as he was their secret leader.
+"I HAVE ALWAYS BEEN AT YOUR SIDE JOHN AND I ALWAYS WILL YOU DO NOT FEAR" pronounced the Mountain Man 
 Commander.
-	The King Dwarf of the Under-Crypts crawled beneath John's feet. "I besiege you John please do not kill me.
+The King Dwarf of the Under-Crypts crawled beneath John's feet. "I besiege you John please do not kill me.
 I will do anything for you!"
-	"THEN SWEAR TO ME THAT YOU WILL NEVER SHOW YOUR FACE HEAR AGAIN! I WILL APPOINT A NEW KING AND HE WILL BE
+"THEN SWEAR TO ME THAT YOU WILL NEVER SHOW YOUR FACE HEAR AGAIN! I WILL APPOINT A NEW KING AND HE WILL BE
 JUST AND FAIR UnLIkE YOU!" said John.
-	The Dwarf King walked out of the Lair and John said that all of the prisoners are released and that the
+The Dwarf King walked out of the Lair and John said that all of the prisoners are released and that the
 leader of the oppresed people is the new king and John and the Mountain Man Man left the Prison grounds and decided
 to leave. 
 	
-	The Dragon Lord sat upon his Lava Throne under the Volcano. 
-	"I must kill John and his Mountain Man Commander as he is the only one who can kill me. I will send my
+The Dragon Lord sat upon his Lava Throne under the Volcano. 
+"I must kill John and his Mountain Man Commander as he is the only one who can kill me. I will send my
 most powerful evil warrior."
-	A dark thing approached the throne "I am that." it said.
+A dark thing approached the throne "I am that." it said.
 	
 John continued leaving the fortress. 
-	"Tell me a story from the old lands" said John to the Mountain Man Commander.
-	"Okay" said the Mountain Man Commander as he picked up the tome of Old. 
+"Tell me a story from the old lands" said John to the Mountain Man Commander.
+"Okay" said the Mountain Man Commander as he picked up the tome of Old. 
 
-	"In the dark town of Stabtonville a great mage of dark and great terrible power loomed over the people
+"In the dark town of Stabtonville a great mage of dark and great terrible power loomed over the people
 and made them their slaves. A boy was born. His mother did not want him living in the evil place that she was
 living in. So he mailed him away to a farm. His name...was JOHN!"
 
-	"NO!" cried John. "I never knew that I was from that dark place!"
-	"YOUR MOTHER SACRIFICED ALL SO THAT YOU COULD COME BACK AND SAVE HER! SHE WAS MY WIFE AND I LEFT TO FIND
+"NO!" cried John. "I never knew that I was from that dark place!"
+"YOUR MOTHER SACRIFICED ALL SO THAT YOU COULD COME BACK AND SAVE HER! SHE WAS MY WIFE AND I LEFT TO FIND
 YOU SO THAT YOU CAN DEFEAT THE SOURCERER!" said the MMC.
-	John wept. The Mountain Man Commander placed his arm around John but then an arrow shot through it and 
+John wept. The Mountain Man Commander placed his arm around John but then an arrow shot through it and 
 the Mountain Man Commander yelpped in pain! A Dark Thing leapt into scene.
-	"I have come to kill JOhn now" he said.
-	So then the Dark Thing stabbed John and he died.
+"I have come to kill JOhn now" he said.
+So then the Dark Thing stabbed John and he died.
 
-END OF PART 2
-````
+	END OF PART 2
+
 
 # John's Story Part 3: Too Human Too Furious
 
-````
-				John's Story Part 3:
-				Too Human Too Furious
 
-	John felt the icy hands of the Deathgod bind him.
-	"You are mine JUST LIKE YOUR FATHER!" said the Deathgod.
-	Just then, I light shined down from Mt.Olympus and a voice boomed
+	John's Story Part 3:
+	Too Human Too Furious
+
+John felt the icy hands of the Deathgod bind him.
+"You are mine JUST LIKE YOUR FATHER!" said the Deathgod.
+Just then, I light shined down from Mt.Olympus and a voice boomed
 throughout the Deathgod's halls.
-	"DO NOT TOY WITH LIFE, BROTHER!" the voice boomed.
-	The Deathgod snarled and hissed and crackled. "THIS ONE IS MINE AND
+"DO NOT TOY WITH LIFE, BROTHER!" the voice boomed.
+The Deathgod snarled and hissed and crackled. "THIS ONE IS MINE AND
 HE WILL MAKE A FINE TROPHY FOR MY DREADHALLS!" said Deathgod.
-	The voice threw a lightning bird down and hit the Deathgod and as
+The voice threw a lightning bird down and hit the Deathgod and as
 he staggered to ragain his footing above the cliff John wriggled out of
 his grasp and he was levetiated up through the sky clouds.
-	"NOOO! I WILL GET YOU JOHN AND IF NOT YOU I WILL KIDNAP YOUR FAMILY
+"NOOO! I WILL GET YOU JOHN AND IF NOT YOU I WILL KIDNAP YOUR FAMILY
 MEMBERS!" the Deathgod hissed like a snake.
 
-	"Where am I?" asked John? 
-	"I am Odin son of Bodin, welcome to Mt.Olympus, I watched you on your
+"Where am I?" asked John? 
+"I am Odin son of Bodin, welcome to Mt.Olympus, I watched you on your
 thirst for vengeance and knew that the icy talons of the Deathwatcher could
 not claim your soul so quickly!" said Odin.
-	"Who was that Deathgod?" queried Johnson?
-	Odin's face grimaced as he spat "He is known by many names but I
+"Who was that Deathgod?" queried Johnson?
+Odin's face grimaced as he spat "He is known by many names but I
 know him as my brother LOKI son of Boki."
-	John stated "Odin I need to get back to Earthcrust because I have to
+John stated "Odin I need to get back to Earthcrust because I have to
 help my father and get the Mountain Blade and free Shagnusland from the 
 Mountain Men and claim my rightful place upon the thron of Shagnusland
 and kill the Demon Dragon Lord and Kill the Dragonlord who tried to kill me
 and save my Mother from the evil Illusionist and liberate my people from
 that dark place."
-	"NOT SO HASTY YOUNGLING" boomed Odin. "YOU ARE BUT A PALTRY FARMER
+"NOT SO HASTY YOUNGLING" boomed Odin. "YOU ARE BUT A PALTRY FARMER
 NO WARRIOR!"
-	"But I must!" said John.
-	"THEN TAKE MY SON THOR SON OF BORE. HE WILL STEER YOU RIGHTLY ON THIS
+"But I must!" said John.
+"THEN TAKE MY SON THOR SON OF BORE. HE WILL STEER YOU RIGHTLY ON THIS
 QUEST YOU BARE." boomed Odin.
-	"I thank you for your patience and my audience" thanked John.
+"I thank you for your patience and my audience" thanked John.
 
-	John was teleported by a lightning bolt back to the Earthcrust and
+John was teleported by a lightning bolt back to the Earthcrust and
 found himself still stabbed by the Dark Thing's blade. He removed it from 
 his bones and said "DARK THING FACE ME IN BATTLE AND THE CONTEST WILL END 
 HERE!"
-	The Dark Thing spun around and said "THAT BLADE WAS COATED WITH THE
+The Dark Thing spun around and said "THAT BLADE WAS COATED WITH THE
 DRAGON LORD'S DEATHMAGMA YOU CAN NOT LIVE!"
-	John let loose a smirk, ", IT HAS BEEN REMADE WITH LIFE OF ODIN!"
+John let loose a smirk, ", IT HAS BEEN REMADE WITH LIFE OF ODIN!"
 He stabbed the dark thing and the dark thing exploded.
-	"Now let me get ready for the vengence." John spurted" For he knew the 
+"Now let me get ready for the vengence." John spurted" For he knew the 
 road would be long and weary, and aslo he did not know how to get to the town 
 where his mother was still buried alive by the evil grand wizard, becasue years 
 ago the wizard erased John's memory when he was born.  
-	"Let me light the way" squeezed Thor, God of Olympus, because Odin died
+"Let me light the way" squeezed Thor, God of Olympus, because Odin died
 and Thor became the new God of Olympus and married the princess.  
-	A great burst of dazzling life brightened the sky and John began to lean
+A great burst of dazzling life brightened the sky and John began to lean
 towards the town of his goal. 
-	"Follow that goal and your life will succeed." Thor said as he burst into flame.
-	As the embers sizzled, John flew towards Stabtonville.
-	"wait?" quized JOhn, he said, "look, in the ash of Thor!!" Sure enough there was 
+"Follow that goal and your life will succeed." Thor said as he burst into flame.
+As the embers sizzled, John flew towards Stabtonville.
+"wait?" quized JOhn, he said, "look, in the ash of Thor!!" Sure enough there was 
 the key to the town hat. John has just landed in the hinterland of the wizard controlled 
 territory.  He felt gravity grow tenfold, but his strength was true and he stood.
-	"GAURDS!!!!" said the Dark Minister.
-	A thousand guards from all corners ran to John and held him at swords-length. 
-	"BRING HIM TO MY TOWER OF NECROFLAME THE DUNGEON." commanded the Dark Minster.
-	John was dragged FEET first to the dungeon and through inside with a proud whimper.
-	"BRING HIM TO MY CONJURING CHAMBER GAURDS!" commanded the Dark Minstrel.
-	John was dragged FEET first to the chamber and activated the timer. "TICK TOCK" he
+"GAURDS!!!!" said the Dark Minister.
+A thousand guards from all corners ran to John and held him at swords-length. 
+"BRING HIM TO MY TOWER OF NECROFLAME THE DUNGEON." commanded the Dark Minster.
+John was dragged FEET first to the dungeon and through inside with a proud whimper.
+"BRING HIM TO MY CONJURING CHAMBER GAURDS!" commanded the Dark Minstrel.
+John was dragged FEET first to the chamber and activated the timer. "TICK TOCK" he
 whispered knowingly to himself.
-	"WELCOME TO MY FILET OF SOUL!" said the Dark Seer. "DO YOU HAVE ANY LAST REQUESTS?"
-	"LET ME STRETCH MY LEGS" said John.
-	"FINE THEN YOU DIE" gloated the Dark Adviser.
-	When the gaurds unshackeled his limbs John kicked the explosives off of his legs and
+"WELCOME TO MY FILET OF SOUL!" said the Dark Seer. "DO YOU HAVE ANY LAST REQUESTS?"
+"LET ME STRETCH MY LEGS" said John.
+"FINE THEN YOU DIE" gloated the Dark Adviser.
+When the gaurds unshackeled his limbs John kicked the explosives off of his legs and
 into the Conjuror's Mouth.
-	"NEGO Victorim! John Belted, as he took safe distance from the blast the engulfed the Dark 
+"NEGO Victorim! John Belted, as he took safe distance from the blast the engulfed the Dark 
 Vicar from the inside of his robes, the fire reached out with talons of the embodied phoenix and 
 lustily devoured the guards, because it judged them to be truley evil.  
-	"SON!" said the Mountain Woman Commander she was free from the evil spell that killed her. 
-	"Mother..." said the John.
-	The Mountain Man Commander knelt beside her mangled corpse.
-	"This is where I belong..." said the MOuntain Man Commander.
-	The Mountain Woman Commander furled back into her shell. The Mountain Man Commander followed.
-	"Goodbye Father and Mother." pronounced John as their strength pierced his flesh cage. 
-	And from his broken flesh lept a shadow.  
-	"Get ready for my death punch John was scared for the first time in his life, he knew then it 
+"SON!" said the Mountain Woman Commander she was free from the evil spell that killed her. 
+"Mother..." said the John.
+The Mountain Man Commander knelt beside her mangled corpse.
+"This is where I belong..." said the MOuntain Man Commander.
+The Mountain Woman Commander furled back into her shell. The Mountain Man Commander followed.
+"Goodbye Father and Mother." pronounced John as their strength pierced his flesh cage. 
+And from his broken flesh lept a shadow.  
+"Get ready for my death punch John was scared for the first time in his life, he knew then it 
 would be the last.  The shadow spoke: "Iam your inner evil, but i doubt you'll ever see me again!" 
 With that, the dark thing blew away in the wind and John figured he had seen the last of him. 
 	
-	The town celebrated for Ninety Fortnights and pronounced John their leader forever. But little
+The town celebrated for Ninety Fortnights and pronounced John their leader forever. But little
 did he see that the Demon Dragon Lord lurked in th shadows and formed the alliance with the Mountain 
 Man King and the Dragon Lord. The End was nigh...
     
 
- To be continued...
-````
+	To be continued...
+
 
 # John Halo Reach Beta Part Quad
 
-````
-						John Halo Reach Beta Part Quad
 
-	Flying on his Nethervulture, John surveyed his kingdom. All of the hills were bare of any evil as for the
+	John Halo Reach Beta Part Quad
+
+Flying on his Nethervulture, John surveyed his kingdom. All of the hills were bare of any evil as for the
 past 15 years John and his army of 40 thieves cleansed the land of all the brigand forces. 
-	"MILORD!" yelped Duncan. Duncan is the second in commanfs. "I see a huge army in the distance"
-	They went there and the fighting began. John hacked up all the enemies in his view and his Darkvulture mount
+"MILORD!" yelped Duncan. Duncan is the second in commanfs. "I see a huge army in the distance"
+They went there and the fighting began. John hacked up all the enemies in his view and his Darkvulture mount
 ate all of the mounts of the enemies. 
-	"Down Drago!" laughed John. The Deepvulture smiled a liar's grin and flew back to his nest at John castle.
-	"MILORD!" yelped Duncan. Duncan is the second in command. "There is the leader of the force!"
-	The leader was none other than the MOUNTAIN MAN KING! The armies split apart and John and the Mountain Man
+"Down Drago!" laughed John. The Deepvulture smiled a liar's grin and flew back to his nest at John castle.
+"MILORD!" yelped Duncan. Duncan is the second in command. "There is the leader of the force!"
+The leader was none other than the MOUNTAIN MAN KING! The armies split apart and John and the Mountain Man
 King met in the center of the battle arena. 
-	"WONDERFUL DAY FOR A FEAST!" bellowed the jolly soul.
-	"Release your army to my command and you will be set free." responded King John.
-	"A LOSS IS A LOSER'S VICTORY!" boomed the King of the Mountain Band.
-	"Then it is settled! We will have battle and you will end! it." 
-	"I'VE EATEN SMALLER MEN FOR MORE!" blared the MMK.
-	"THEN YOU'RE GONNA LOVE ME said the Mountain Man Commander as he stabbed the Mountain Man King in the back
+"WONDERFUL DAY FOR A FEAST!" bellowed the jolly soul.
+"Release your army to my command and you will be set free." responded King John.
+"A LOSS IS A LOSER'S VICTORY!" boomed the King of the Mountain Band.
+"Then it is settled! We will have battle and you will end! it." 
+"I'VE EATEN SMALLER MEN FOR MORE!" blared the MMK.
+"THEN YOU'RE GONNA LOVE ME said the Mountain Man Commander as he stabbed the Mountain Man King in the back
 with a dark dagger. "Son you are in danger you must depart as forces beyond my control are gravitating towards the
 edge of a knife that if you stray but a little and you WILL FALL!" with that last word spoke, the Mountain Man
 Commander was dragged back by his FEET to the Deathrealmlands by Ingor the Soul Incinerator.
-	"THank you father. ENEMY TEAM YOUR COMMANDER IS DEAD AND I HAVE TAKEN THE FIELD YOU ARE MINE!" the enemy
+"THank you father. ENEMY TEAM YOUR COMMANDER IS DEAD AND I HAVE TAKEN THE FIELD YOU ARE MINE!" the enemy
 army fell on their swords and the rivers ran as red as the lava of the volcano with the blood from their bodies.
 	
-	Days past. Then weeks. After 12 days, John took his best men and crusaded out the doors of the castle
+Days past. Then weeks. After 12 days, John took his best men and crusaded out the doors of the castle
 riding upon Drago the Dreadvulture.
-	"MILORD!" yelped Duncan. Duncan is the second in command. "I am glad to be here with you at the end of
+"MILORD!" yelped Duncan. Duncan is the second in command. "I am glad to be here with you at the end of
 the world."
-	John nodded at the Duncan and without any warning an ancient Roc flew past them and ate half of John's
+John nodded at the Duncan and without any warning an ancient Roc flew past them and ate half of John's
 men.
-	"LET FLY THE DOGS OF WAR!" said John to the Zeppelin commander. The Zeppelin commander turned and signaled
+"LET FLY THE DOGS OF WAR!" said John to the Zeppelin commander. The Zeppelin commander turned and signaled
 the cannon squadron. They unleashed a military barrage of biblical portions upon the Titan Bird and it fell
 to the ground. 
-	"Burn the body so its diseases will die with it." explained John. "Our battle is not over steal yourselves
+"Burn the body so its diseases will die with it." explained John. "Our battle is not over steal yourselves
 as I forsee an ancient enemy threat from beyond the grave is in charge of these attacks..."
-	The Bat Riders of the Kingdom swam through the sky whilst John led them on through. 
-	"MILORD!" yelped Duncan. Duncan is the second in command. "I see the Dragonlord's Keep!"
-	"Excellent scope!" pronounced John King.
-	The Baker's dozen warriors went into the evil commonwealth and layed down their mounts. They did not want
+The Bat Riders of the Kingdom swam through the sky whilst John led them on through. 
+"MILORD!" yelped Duncan. Duncan is the second in command. "I see the Dragonlord's Keep!"
+"Excellent scope!" pronounced John King.
+The Baker's dozen warriors went into the evil commonwealth and layed down their mounts. They did not want
 to risk there rides as the keep was gaurded by the magician's evel flak catapults.
-	"Listen men!," said King "We will sneak into the castle and assassassinate the Dragonlord and deactivate
+"Listen men!," said King "We will sneak into the castle and assassassinate the Dragonlord and deactivate
 his Serpentine Jihad upon the land. MEN OF SHAGNUSLAND WE WILL STAND AS ONE AND HOLD THE LINE IN THE KEEP AND! But
 John was interrupted as the wasw A SCOUT beast in the mountain that saw them and ran to his master!
-	"MEN IT IS TIME TO CHARGE AND FIGHT TILL THE LAST BREATH IS DRAWN!!!" the men ran at the castle and
+"MEN IT IS TIME TO CHARGE AND FIGHT TILL THE LAST BREATH IS DRAWN!!!" the men ran at the castle and
 dodged all of the fire bombs that shot out of the volcano."
 
 MeanWhile in the Dragon Lord's Keep 
  
-	"Does Jhon know your DARKEST SECRET, my sweet fledgling king?" chortled the Dragon king's aide
-	"I should think not, his mother made me a promise that he would never figure out that I am indeed his 
+"Does Jhon know your DARKEST SECRET, my sweet fledgling king?" chortled the Dragon king's aide
+"I should think not, his mother made me a promise that he would never figure out that I am indeed his 
 brorther." skaffed the Demon king his second act as the dark king was to release his army of jetpack alien warriors 
 who had gernades inside their bodies, for a little extra kick on the end.  
-	All of the sudden the king saw out the window the army of John's army charging, prepare my best mount for 
+All of the sudden the king saw out the window the army of John's army charging, prepare my best mount for 
 this battle!!!! said the darkest king.  Screaming Dark Thunder Eel was what came out and John was suprised to see
 it but he was confident in his valor and kicked his spurrs into the veins of his own mount to spur him on. 
-	"Now that we have taken out the Flak Cats we can shall MOUNT ON to the Dragon's Roost!" said John.
-	The entire battalion was almost on their's but an ambush fell like the Axeman's blade. 
-	It was an alien jetpack warrior! "WE ARE THE CONVENT! AND WE HAVE BEEN MERCENARIED HIRED TO KILL ALL
+"Now that we have taken out the Flak Cats we can shall MOUNT ON to the Dragon's Roost!" said John.
+The entire battalion was almost on their's but an ambush fell like the Axeman's blade. 
+It was an alien jetpack warrior! "WE ARE THE CONVENT! AND WE HAVE BEEN MERCENARIED HIRED TO KILL ALL
 WHO DISAVOW THE DRAGON LORD'S WISHES!" said Kleecang the Elder.
-	"MILORD!" yelped Duncan. Duncan is the second in command. "You go on we can handle this ramble!"
-	JOhn leapt upon his Deathvulture and screamed through the murk and got to the top of the Dragonlord's
+"MILORD!" yelped Duncan. Duncan is the second in command. "You go on we can handle this ramble!"
+JOhn leapt upon his Deathvulture and screamed through the murk and got to the top of the Dragonlord's
 Tomb-Castle. 
-	"I HAVE WAITED FOR YOU FOR NIGH 20 years." brooded the Dragonlord. "Gaze upon my Thunder Eel and feel
+"I HAVE WAITED FOR YOU FOR NIGH 20 years." brooded the Dragonlord. "Gaze upon my Thunder Eel and feel
 dread...!"
-	John was thrown off his mount with emotion. He got up. 
-	"I've got this one, John." said Drago. Drago breathed lightning onto the Dragonlord.
-	The Dragon fell off and fell off the tower. "Ahh!" he said.
-	The Thunder Eel was all that was left and his eyes fell back into his head and then he exploded and
+John was thrown off his mount with emotion. He got up. 
+"I've got this one, John." said Drago. Drago breathed lightning onto the Dragonlord.
+The Dragon fell off and fell off the tower. "Ahh!" he said.
+The Thunder Eel was all that was left and his eyes fell back into his head and then he exploded and
 knocked John off the tower.
-	John fell down to the earthcrust and as he fell he collected the weapons of his fallen friends.  
+John fell down to the earthcrust and as he fell he collected the weapons of his fallen friends.  
 Then he saw the dragon Lord falling too and remenbered his past transgresions.  
-	"I AM THE WEILDER OF THE ANCIENT FIRE!" screamed John, this was his classic battle cry.  
+"I AM THE WEILDER OF THE ANCIENT FIRE!" screamed John, this was his classic battle cry.  
 HE began to fire up the jetpack he stole from an alien general so he could catch up to the falling Dragon lord.  
 CLANG went their weapons as they met in mid-fall.  Their battle shook the landscape as they continued to fall 
 towards the Earthcrust.  THe EArthcrust opened like a hungry maw and the two battlers fell in, and then out the 
 side of the planet, the combatants were launched like a cannon into the ETHER of space.  
-	"I've lost the Demon Lord, said John hopelessly as he crashed into a mysterious forest planet.   
+"I've lost the Demon Lord, said John hopelessly as he crashed into a mysterious forest planet.   
 
-John's Adventure will continue in "John's Story Part 5: The Legend of Planet Avatar"
-````
+	John's Adventure will continue in "John's Story Part 5: The Legend of Planet Avatar"
 
 # John's Story Part 4: The Mystery of Planet Avater
 
-````
-				John's Story Part 5: The Mystery of Planet Avatar
+
+	John's Story Part 5: The Mystery of Planet Avatar
 
 The treeline slaped John around like a pinecone.  
 John ran through all of the jungle but could not get out of the jungle. He heard a forgin tongue
@@ -421,13 +420,12 @@ the Mountain Blade at Ingor and it seared his face as it passed by.
 
 John scooped up Duncan's ashes and rode away on Drago. Even though they had succeeded in battle
 this day it seemed that all of the hope chance was gone.
-````
+
 
 # John's Story Part VI: Laser Quest for Duncan
 
-````
-						John's Story Part VI
-						Laser Quest for Duncan
+	John's Story Part VI
+	Laser Quest for Duncan
 
 John John spent 18 years searching for through the Mountains of Shagnusland for a cure to death of 
 Duncan. John's kingdom fell apart over the years and all the people got a new king and he was good
@@ -504,73 +502,73 @@ WHAT MUST BE DONE TO IT!" and Odin poofed off.
 John took the heart back to town and brought it to Fangdom the Blacksmith. Together they smelted the
 heart into the Mountain blade and it was sharper than ever. He swong it around and showed off his 
 skill and knew that it was time to end it.
-````
+
 
 # John's Story Final Chapter: John on Fire
 
-````
-			JOHN'S STORY FINAL CHAPTER
-				JOHN ON FIRE
+
+	JOHN'S STORY FINAL CHAPTER
+	JOHN ON FIRE
 					
 Johnothan the king of all men was making his way to the FINAL GOAL-LINE his dead family members 
 all beckoned to him with mangled limbs and stumps and 10 inch bamboo skewers that had his name 
 written. Pepsid the ALl-seer steped in.  
-	"I bet you're woundering why i brought you to the edge of time, chortled Pepsid the best 
+"I bet you're woundering why i brought you to the edge of time, chortled Pepsid the best 
 best man. Well, i'm sure you're sick of all the mystery, so get redy for me to anser all the queries.  
 	
-	10 years later.
+10 years later.
 
-	John swung the mountain blade at the Serpent Lord but the snake 
+John swung the mountain blade at the Serpent Lord but the snake 
 master was too fast and argile. The snake thrust his tail at John and it
 knocked him to the ground.
-	A mystical light shown down upon John at this point and a voice 
+A mystical light shown down upon John at this point and a voice 
 whispered into his mind "JOHN! I AM THE GHOST OF THE MOUNTAIN!"
-	"I CANNOT DEFEAT THIS FOE." said John.
-	"TRUST IN THE GODS AND ALL IS POSSIBLE." responded the spook.
-	"OKAY!" screamed John and then he leapt up and used a sword tornado
+"I CANNOT DEFEAT THIS FOE." said John.
+"TRUST IN THE GODS AND ALL IS POSSIBLE." responded the spook.
+"OKAY!" screamed John and then he leapt up and used a sword tornado
 attack that he learned from his father and he the snake into 100 pieces.
-	"I YIELD!" said the Serpent Lord.
-	"WHERE IS THE DRAGON!???!" yelled John at him!
-	"I will not tell you because he would kill me!" said snake.
-	John smirked a smirk "I will kill you if the Dragon
-	The Serpent Lord said "He is where you began. At your farm. Your wife and unborn child
+"I YIELD!" said the Serpent Lord.
+"WHERE IS THE DRAGON!???!" yelled John at him!
+"I will not tell you because he would kill me!" said snake.
+John smirked a smirk "I will kill you if the Dragon
+The Serpent Lord said "He is where you began. At your farm. Your wife and unborn child
 will be his dinner and he will pick his teeth with your house!"
-	John was sooooo angry that he gobbled the snakeman's eyes. And then it was time for justice.
+John was sooooo angry that he gobbled the snakeman's eyes. And then it was time for justice.
 But the dragon was a foe too great for just him. So he would have to go back in time and collect
 all of his allies when they were at their best...
 
-	At John's Farm The Dragon was using his strategy and decided that he had to go back in time
+At John's Farm The Dragon was using his strategy and decided that he had to go back in time
 and collect all the greatest enemies of JOhn and use them as a army...
 
-	John clasped The Amulet of Nargoth. He had to think of the color assosiated to the time he
+John clasped The Amulet of Nargoth. He had to think of the color assosiated to the time he
 wanted to go to because that is how the amulet worked. So poof went and then he was in time. He
 swam through the time and arrived back on the Mountain. He saw that in the distance was the 
 Mountain Man Commander and the troops were shooting those wicked arrows. He had to change time and
 bring the Mountain Man Commander with him. So he dodged the axis and the arrows and did a 360
 vertical spin over the smolders and grabbed the Mountain Man Commander by the head. 
 "LISTEN" said John "I am your son! We MUST go in time and kill the Dragon!!!"
-	So John and the Mountain Man Commander jumped into the worm's hole and landed in a nother
+So John and the Mountain Man Commander jumped into the worm's hole and landed in a nother
 time. They were next to a TICKING TIME bomb. But it was full of cogs and gears. John studied all of 
 the wires and the Mountain Man Commander untied Duncan and Drago. 
-	"MILORD!" yelped Duncan. Duncan is the second in command. "This bomb has a hex placed upon
+"MILORD!" yelped Duncan. Duncan is the second in command. "This bomb has a hex placed upon
 it! If you try and clip the wires it will fire up!"
-	"RUUUUUUUUUUN!" cooed John! The four of them ran away and then the bomb exploded and they
+"RUUUUUUUUUUN!" cooed John! The four of them ran away and then the bomb exploded and they
 were blown away into the worm's hole. And they all went into seperate times.
 
-				SECTION II: Drago's Story
+	SECTION II: Drago's Story
 
-	Drago the dreadvulture was thrown 100 miles an hour at Mount Olympus and went straight
+Drago the dreadvulture was thrown 100 miles an hour at Mount Olympus and went straight
 through it. Zues's palace began to crumple and the entire peak started falling down. All of the
 gods fell out and Drago had to do it quickly and get Thor because he is who they needed. He sifted
 mid air through all the gods that fell out and they were only 7 feet from the ground when he
 grapped Thor in his Blade Beak and flew skyword into the Sky.
-	Thor flong around and then onto the Vulture's back. COME ON NOW DRAGO LETS SAVE JOHN HE
+Thor flong around and then onto the Vulture's back. COME ON NOW DRAGO LETS SAVE JOHN HE
 SAID AS HE THREW MILLER ,THE HAMMER OF SPARTA, INTO THE SKY AND CAUSED A TIME RIFT THAT THEY
 WENT RIGHT THROUGH.
 
-				SECTION III: Duncan's Day
+	SECTION III: Duncan's Day
 
-	Duncan was thrown 100 miles per hour at the village. He stood up and saw the instant that
+Duncan was thrown 100 miles per hour at the village. He stood up and saw the instant that
 the Death God Loki was grabbing the local Ju-Ju man. He knew that he had to stop him as that 
 was hiss mission. Duncan used a bow and an Arrow with an explosion tipped trigger and shot it at
 Loki. It hit it and it howled at the sky in pain. But then he recovered and Loki and Duncan fought
@@ -579,15 +577,15 @@ Loki shot lies and Duncan but Duncan shot truth right back and the when the lies
 met in the middle of the battlefield they exploded and revealed the true winner and it was 
 Duncan and he grabbed Uncle Ju Ju and leapt into the Wyrn's Hole through time. 
 
-			SECTION IV: John spills the Blood
+	SECTION IV: John spills the Blood
 
-	John was thrown 100 miles a hour out of the worm's hole. John found himself back in the
+John was thrown 100 miles a hour out of the worm's hole. John found himself back in the
 Stabtonville and was held by swordslength by 10,000 gourds. JOhn swung the Mountain Blade around
 and began cutting up all of the gourds and they dropped their guns. John picked up two 50 cal.
 pistols and shot the rest of them and SOMETIMES A BULLET WENT THROUGH 5 PEOPLE AT A TIME. 
 He went to the shovel and went to the graveyard and dug up the Mountain Woman Commander from
 her watery grave andshe stood up.
-	"Thanks J-J, lets finish it. She picked up two 50 calibur Rocket launchers and they went
+"Thanks J-J, lets finish it. She picked up two 50 calibur Rocket launchers and they went
 through the wyrm's hole. 
 
 All of them were at ready for the final mission. Die or. It was do or die. 
@@ -683,9 +681,8 @@ His inner evil staggered up and John's fist snapped off in the innner evil's sto
 out of the Inner Evil's eyeballs and then his legs blew up and his arms twisted in 460 and then
 his neck blew up. John's inner evil was dead.
 
-
-					John's Epilogue:
-					Becker Late Than Never
+	John's Epilogue:
+	Becker Late Than Never
 
 The Forces of evil were destoryed for ever on that day. But a price was paid. King John and his 
 entire family had been slaughtered. 
@@ -734,8 +731,8 @@ The End...
 
 ...or was it?
 
-				John's Epilogue Part II:
-					Kevin Likes Men!
+	John's Epilogue Part II:
+	Kevin Likes Men!
 					
 The blood from John's body soaked the soil of his farm. A mysterious figure sprang up.
 "John I am the spirit of the Mountain Blade. A man such as yourself you have been granted access
@@ -751,7 +748,5 @@ THE EVIL IN THE INTIRE WORLD NOW YOU ARE THE KING OF THE MOUNTAIN ALL HALE JOHN 
 MOUNTAIN."
 
 John raisd the Mountain Blade into the air. The Mountain was finally whole again.
-
-````
 
 ### The End[.](bonus)
