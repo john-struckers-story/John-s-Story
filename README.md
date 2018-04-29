@@ -5,6 +5,8 @@
 	MOUNTAIN BLADE:
 	John's Story
 
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/436101825&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 In the distant land of Shagnusland, John Strucker was but a farmer. One day while harvesting the latest bounty 
 of fruits and shank, a mysterious figure sprang up from the soil. 
 "OH MY!" John exclaimed.
