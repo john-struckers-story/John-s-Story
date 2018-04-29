@@ -7,6 +7,7 @@
 
 <iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/436101825&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
 
+
 In the distant land of Shagnusland, John Strucker was but a farmer. One day while harvesting the latest bounty 
 of fruits and shank, a mysterious figure sprang up from the soil. 
 "OH MY!" John exclaimed.
@@ -74,6 +75,9 @@ opened up and John found himself in the underground DWARF FORTRESS!
 # Dwarf Fortress: A John's Tale
 
 	Dwarf Fortress: A John's Tale
+
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/436102467&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 
 10 Years have passed since the battle against the terrible Dragonlord. John woke up from his fall through
 the Earthcrust and found himslef in the company of great KINGS of Dwarves. 
@@ -155,6 +159,9 @@ So then the Dark Thing stabbed John and he died.
 
 	John's Story Part 3:
 	Too Human Too Furious
+
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/436102875&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 
 John felt the icy hands of the Deathgod bind him.
 "You are mine JUST LIKE YOUR FATHER!" said the Deathgod.
@@ -249,6 +256,9 @@ Man King and the Dragon Lord. The End was nigh...
 
 	John Halo Reach Beta Part Quad
 
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/436110501&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
+
 Flying on his Nethervulture, John surveyed his kingdom. All of the hills were bare of any evil as for the
 past 15 years John and his army of 40 thieves cleansed the land of all the brigand forces. 
 "MILORD!" yelped Duncan. Duncan is the second in commanfs. "I see a huge army in the distance"
@@ -330,6 +340,9 @@ side of the planet, the combatants were launched like a cannon into the ETHER of
 
 
 	John's Story Part 5: The Mystery of Planet Avatar
+
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/436116984&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
 
 The treeline slaped John around like a pinecone.  
 John ran through all of the jungle but could not get out of the jungle. He heard a forgin tongue
@@ -429,6 +442,9 @@ this day it seemed that all of the hope chance was gone.
 	John's Story Part VI
 	Laser Quest for Duncan
 
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/436894935&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
+
 John John spent 18 years searching for through the Mountains of Shagnusland for a cure to death of 
 Duncan. John's kingdom fell apart over the years and all the people got a new king and he was good
 and becuase John was too distraced with the death of his second in command. So he was flying through the air of
@@ -511,7 +527,10 @@ skill and knew that it was time to end it.
 
 	JOHN'S STORY FINAL CHAPTER
 	JOHN ON FIRE
-					
+
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/436902075&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
+
 Johnothan the king of all men was making his way to the FINAL GOAL-LINE his dead family members 
 all beckoned to him with mangled limbs and stumps and 10 inch bamboo skewers that had his name 
 written. Pepsid the ALl-seer steped in.  
