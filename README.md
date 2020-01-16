@@ -24,7 +24,7 @@ NOT HAVE A BLADE TO KILL THEM WITH!"
 
 So John went to a mountain and looked for the blade. But he did not find the blade. The Mountain Men saw
 him for miles and started shooting arrows at him. He said, "NO! NO ARROWS!". 
-The Mountain Man Commander barked orders and threw axes at John. John knew that if he assassinated the
+The Mountain Man Commander barked orders and threw a[x](xohn)es at John. John knew that if he assassinated the
 commander that that would end the battle right there. So he jumped over the fissure and rolled through the lines
 and punched the commander and the battle began. John's fsce was split by a smile.  
 
