@@ -1,6 +1,8 @@
 # Xohn’s Story
 
-    Chapter First: Star Juice
+## Xohn's Story: Chapter First: Start Juice
+
+    Xohn's Story: Chapter First: Star Juice
 
 
 <iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/744162697&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
@@ -26,10 +28,11 @@ In the vault there was a single prophylactic and it was filled with what the god
 
 and said “Knives, hear me now.” she put out her arm and Chessboard the black and white falcon landed on it She drew her two knives and chuckled and her eyes rolled back into her head until the black and red irises that were on the back of her eyes came forward and that meant she was in battle mode. “It’s time to get off this blackwater planet” said the smuggler and she pulled out her knives. “Even if I kill someone.” and she ran out into the street for fighting.
 
-To Be Continued
+    To Be Continued
 
+## Xohn's Story: The Secon d Guy
 
-    The Secon d Guy
+    Xohn's Story: The Secon d Guy
 
 
 <iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/746829448&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
