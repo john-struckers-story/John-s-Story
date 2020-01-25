@@ -1,6 +1,6 @@
 # Xohn’s Story
 
-    Chapter First: Star Juice ###
+    Chapter First: Star Juice
 
 
 <iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/744162697&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
@@ -27,3 +27,30 @@ In the vault there was a single prophylactic and it was filled with what the god
 and said “Knives, hear me now.” she put out her arm and Chessboard the black and white falcon landed on it She drew her two knives and chuckled and her eyes rolled back into her head until the black and red irises that were on the back of her eyes came forward and that meant she was in battle mode. “It’s time to get off this blackwater planet” said the smuggler and she pulled out her knives. “Even if I kill someone.” and she ran out into the street for fighting.
 
 To Be Continued
+
+
+    The Secon d Guy
+
+
+<iframe width="100%" height="166" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/746829448&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true"></iframe>
+
+
+Xohn drew her two knicves they were named Murder-Star and Galoxy of Blood/ Their blades were made from moons. There were imperial fistmen, and their fists were as big as your pelvis. “Seamus” Xohjn said “this is enough. What about old times sakes”. One of the fistmen turned and saidc while squinting “This is only the begininng” Xohn sheathed her two stabbers and knocked back her pistol. The empire’s goonboys walked sllowly towards her with their faces facing down and their eyes facing up. Xohn aimed her gun toward the turbing on her ship the Crimson Meteor and used the remote start on her electronic bracers and fired a shot and when it hit the spinning turbiune the turbine took the shot and spun it around and launched it back out and it hit one of the fistmen in the back of his neck and it blasted his neck tendons out the front of his throat and also his adams apple and that got caught in his rubbery neck-tendons which slingshotted his adams apple back at him and it went through his forehead and pierced his brain and he was pronounced dead.
+   
+Seamus frowned. “That mand was just doing his job What can I tell his family??” ZXohn flexed a bicep and spat on it “War is hell don’t you remember that time on Zylon-12” Shamus smirked and snickered. He said ‘Man we sure have a long and interesting history together,” as Xohn shot and killed him. The remaning fistmen put their big brass knuckles that were jetpacks and they pointed their arms at the ground and launched off into the sky buy one of them didn’t do that he got into Xohn’s ship and took off into the space.
+    
+“By the rings of Zenoron, my ship is gone from me,” boasted Xohn, adn she knew in her bones that she would have to go to the shipyards of the Czar “CURE MY BONES,: screamed Xohnsey. SHe tapped a few keys on her grizzled wrist communicator and a portal to the cyber-bus station opened and she wernt through it and bought a ticket. The bus-driver arrived with 50 drones blasting at this bus and yanked the emergency plasma brakes and the bus spun around and stopped and screamed “GET IN”
+    
+Xohn did a kickflip and spun into the bus door and her knees got banged but she didn’t say anything. She and bus-driver Mobox Plomazar who was an alien with more knees than a man looked behind and saw it was Father War the head priest who was in charge after the Catholics and the greek gods combined. He had a big hammer and a submarine gun and he was a-coming. The drones swirled around and lifted him in the air and he started smacking the bus and Mobox FLOORED it and the cyber-bus turned into data and was sent through the internet. Bret we’ll never see him again said the narrator.
+    
+Xohn and Mobox went in to the shipper’s and ordered a new ship from the clark at the desk and he said “Get this ship it is the latest modem and so Xohn and mobox got a big triple-decker Obadiah-class warship with secret panels and a lot of turrets on one side and a lot of shileds on the other, to increase tactics.”I’m never going to see this coming” said Xohn and she spray-painted a decal of a lava falcon  on the wing and chastened it the ship “The Skull of the Cosmos” and then she jumped backwards while twisting in slow-mo and firing her gun because just then the doors opened with a slurping sound and who should come in but Father War and he was carrying Seamus’s lifeless gray corpse with beetles coming in and out of it like a subway station. It was tepid.
+    
+Father War smacked the bullets and came at us. He had boots with missiles and he reached down and pressed on with his forefinger and the missile blasted at ya but lluckyly that was the side of the ship with the shields so i guess you could say it worked out because of destiny anyway Xohn rolled along the ground like a snarling thief and soon the only thing that was left was to jump to the ship door. Mobox and Cranch the ship saleman were already inside and Mobox was tied to the pilot’s chair with a cool headset on and he was getting ready to activate the warp drive which was a big interstellar magnet that you would point at a magnet at the place you wanted to go and it would magnet-yank the ship there. Xohn stood up and took her shotgun and then put her hands on her hips in poise where her hands where on her hips with the shotgun in the hands and the shotgun was pointed down and then she said see you really casual and you couldn’t even tell that she was pulling the trigger and the shotgun plasted and it launched her up into the air and smirked and she landed upon the gangplank? Her long shapely legs were still attached. She tossed a molecule grenade as the ship took off and it turned the hangar into water. Father War swam still.
+    
+“MOBOX WHERE?” said Xohn and Mobox looked her dead in the eyes and said reminded her that Earths solar system was a bad place because the sun had died and now was a ghost that haunted the space and the humans had escaped by hollowing out the moon and putting thrusters on it and turning it into a spaceship.
+    
+“MOBOX WHERE” asked John and Mobox looked her dead in the eyes and spake “Earths’s solar sysytem.”
+
+“NOOOOOOOOOOOOOOOOOO”
+
+This is the chapter.
