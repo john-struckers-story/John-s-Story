@@ -57,3 +57,51 @@ Father War smacked the bullets and came at us. He had boots with missiles and he
 “NOOOOOOOOOOOOOOOOOO”
 
     This is the chapter.
+    
+## Forth Chapter: Rectifation
+    Forth Chapter: Rectifation
+
+Down in the belly of their ship Xohns and Cranch and Moxom? were scouting.out and they were in the solar system. “Look on the map said Xohn and she was right. There were the planets, holding council.We have to decide what to do about the sun” said Neptune, prince of the outer reigns. But Xohn and Cranch pulled the wheel and steered their ship the Solar Mantis out of the way and went elsewhere to the asteroid blets that held the College of Astral Ogres. Xohn jerked her leg up and a proton cigarette came outof her boot-hole and she caught it in on the edge of her pointed tongue and then winked so fast that it made a spark and the spark lit her cigaretgte and she puffed it real cool. She loked up and said “looks like we’ere going in there” and she put out her arm and pointed her finger and pointed at the College of Astral Ogres where they were going to go.
+
+
+The shep docked in the dockers and they got on out but left Samson behind to crank the ship engine so it would be ready to go when they needs. The college doors opened and Ogradeen greeted them with a hefty salute and said you are yours to demand. His robes were the color of a black hole he was a big dude and one of his tusks was broken off and replaced with a laser tusk. Xohn said show me where it is and he sputtered and spoodled and scurried down a dark musty tunnel into the Den of Maple. “Here was have awokened the dark film that covers the  mind of the Universe.”
+
+
+Xohn went with the other characters to a differnet part of the college, and here they learned to harness the energy of Zao Gube, an old monk who was a mystic and he practitioned the arts of Plasma Death and he could make plasmas in the minds of his enemies. “This will help you on your journey” said Zao Gube and Ogradeen at the same time but Xohn just spun her guns around and said “This is my magic.” “Be warned Xohn” said them “You will have great folly and you cannot do this” Xohn spat her proton cigg at the floor and the floor caught on fire but the flames burned no man. “My ancestor was a great king of men I defy your magics” and she jumped and flipped up and turned on her magnet boots and started to walk away on the ceiling and Mobox and Cranch followed but they had no such boots and thus they were just on the floor underneath her and their heads almost bumped hers.
+
+
+“BEWARE THE SUN” shouted Professor Mokpost out the door of his class that he taught about the sun which remember is a ghost here.
+
+
+Xohn and her crew which was Cranch and Molbok walked slow-motion into their ship the Galactic Scythe while an explosion went off behind them. It was JUST THE CHEMISTRY LAB Outside the ship-gate where ships went out of the college there was bad news. Samson jestered one of his laser limbs at the screen and they saw that it was all in the barrel now. Many small ships with neutron sails and krypton masts and a tungsten crow’s nests were waiting on an ambush. It was the Pirates of the Army, a new branch of Earthen military that were pirates in space. “Fire when ready” said Rear Admirer Gondor Skullborg. THe pirate ships warmed up their doomguns and Xohn saw their reticles were skittering across her forehead inside the bridge to the ship.
+
+
+“NOT SO.” she said
+
+
+Xohn reached into her coat and pressed the button, triggering the mutiny bomb on one of the enemy ships which she had planted there when she was a cadet in smuggler’s school which was right next to the Pirate Agency in her youth inside the moon. When it went off the ship that it was on the ship’s flags changed colors to Xohn’s colors and the shipcrew boys had a patch on their shoulders and it was Xohn’s sijil the crossed desert eagles over a field of lavas and they were on Xohn’s team.
+
+
+“Blast and FOLLY” gritted Skullborg’s teeth. He aimed to cannon at the turncode ship of traitors and that was his mistake because he turned his gaize away from the ship of Xohn. And that when she strike. “Jetscapepods now!” shouted Xohn and she pressed a button that jected Cranch’s seat out of the ship and super-blasted it in to Skullborg’s ship The Molten Apostle.
+
+
+“Say a prayer for our great marter Cranch who will not be forgotten for his shelfless sacrifice. Xohn put her cowboy hat over her heavy heart and you can even see a tear running down the cowboy hat becuawse her sorrow for brave Cranch was so wet. “I’m ringing my hands” growled Mobox and his hands were fisting so tight that they turned into stone. “Those degnerators killed Cranch.” Samson turned his head down and looked poinyantly at his laser jets. Chessboard let out a lonely.
+
+
+On enemy ship there was space pouring into the leaky hole in the hole of the ship where Cranch happened. There would be no rest. Admiral said “bail the space out of my ship!” Meanwheil he himself went down to torpedo tubes and started pushing torpedos out of the tubes at Xohn’s ship, the Fire Desire even though this was a menial job for the pirate apprentices but Amiral Gondor Skullgore was an man of honor. There would be no silence in space. "Enemy ship prepare for wrath and ruin and a red door" he shriekd into the walkie talkie on the same channel that Xihn's walk-talk'er was on. She pressed the button "Roger that youre dead." heard Skullborg crackle over his Dub-Tub.
+
+
+The both captains got into the airlocks on their ships and they launched at each other towards in space. But you're not going to believe this they were both reckless and irate so they didn't even wear space suits so they better be fast. Holding her breath in so that her supple chest rose a bit beneath the supple leather of her sensual smuggler's jacket, Xohn launched. She and Admiral met in the vacuums of space, in the dark where the night is alive. Xohn was holding her knives and Skullbag had a handful of bardiche in his two hands.
+
+
+Xohn took her two knives and with her left hand she held one knife and the other knot was in the hand of right. She took her left hand, holding the knife which was curled a bit near the top and was made from a metal that was gorged on the planet Caesar and it has fine edge, she took that and swung from left to right at a small angle, and while she swung she moved her fingers so that the knife kind of twirled between her fingers so it sort of spun like a buzzsaw while she was swinging and while that was happening she brought her right hand up to wind back and then slashed straight down to about elbow height, trying to cut at The Admirable's unprotected meats at the neck and below the thigh but Admiral Skullborg took his bardiche and put one hand, his left one, overtop of his right, they were both fists for he clutched the shaft thusly, and he pushed his right hand towards the left, and his left hand to the right and it made the bardiche spin like a helicopter but on a vertical plane not a horizontal plane so that it was spinning in front of him, and the bardiche was spinning so it knocked into the blade of Xohn's right-hand attack while also part of it held fast to prevent the knife of Xohn's left-handed attack if you remember it, that one also umpacted and so neither got through. Then what the Admiral did was, he kind of reached down and grabbed the butt of his vicious forearm with one hand and thrusts it at Xohn in the void of space where the stars look on you and judge your worth while the galaxy spins on and Xohn swung her left hand knife in a semi-circle trying to parry the bardiche thrust and then she tossed her other knife lightly and then caught the blade between her fingers and drew her arm back and then moved it forward and flicked her wrist, she didn't use her other fingers to flick herself on the wrist she kind of smoothly jerked her wrist forward on it's own and let go of the knife and it tumbled end over end through the darkness where the air is gone and the swirling cosmos is all about you and uncaring and the knife tip went forward and down and back and up because of the spinning of centriputile force and when it was just 1 nanometer from Skullbog's eyeball he was jerking his face out of the way but it was too late as Mobox had shot him with a missile.
+
+
+The explosion rocked Xohn into a frenzy and she began to ripple with multitudes. "Xohn swam back into the ship, knocking bits of the Admiral's corpse out of the way as she struggled to regain her way to her ship," said Samson, once Xohn was back on board and in the Capitol's chair.
+"There is a doom" said Xohn pointing at the windshield. Out in the space, there came the ghost of the sun, it's dead eyes were cold and emotional and everyone knew there was going to be payment. The sun began to gobble the Pirates of the Army and then Cohn thought back to the words of the professor a the College of Astral Ogres.
+
+
+"We must beware." And Xohn GUNNED the engines into the only place she knew might not be safe… the hollow Moonship of Earth.
+
+
+    To Be Continued
