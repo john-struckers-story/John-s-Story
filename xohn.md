@@ -105,3 +105,44 @@ The explosion rocked Xohn into a frenzy and she began to ripple with multitudes.
 
 
     To Be Continued
+
+## Xohn’s Story Ch 4
+    Mortuary of Edelweiss
+
+Xohn’s starship the *Mogul Ascension* scuttled into the moon-tubes and the moon-tubes entered the moon-ship, the *Lunar Moon de Lune. *It was the spaceship that the folk of Earth had carve-hollowed out to make into a spaceship, as the Apaches foretold in their prophecies. Xohn dunked a med rare steak into her black coffee while she chewed on a cigar “Home sweet chrome” she whistled as the docks were there. They docked.
+
+“We’re on the docks now” chattered Margrel, Xohn’s oldest friend and secret compatriot. Xohn closed the lid.
+
+On the dock, Mobox and other characters lifted the goods and smuggled them but Xohn only clocked her chromium pistol and put in a new clip and started making new bullets with her hands. “The ghosts of my past?” she said. She walked down the moonar streets, boots clonking as she cantered. She passed many gang members and they had tattoos on their guns and some of them had a little switch in the side of their neck that when they flicked the switch it turned their head-skin off so you could see theyr skull looking right at you and this was intimidation. But Xohn took a knife and put it right up against gangman’s skull so that it was touching and she flicked the switch back on so that the face came back with the knife-tip inside of it and the thug screamed and was fearful. “Where is Kakbrak?” sniveled Xohn Starstrucker, portagonist in chief.
+
+“I’ll knever give up great Lord Kakbrak, he who walks between space and in the rears of stars, vile woman and traitor to the Starshard Doctrine!” spake the man who was a skull-face. She who was that took him by the shoulders and tossed him up into the ceiling and when he came down he landed on one knee holding a ring but Xohn gave him a rejection, saying “i’m married to the Cosmos” and spin kicked the ring into his mouth and out the back of his neck.
+
+ The other gangfellas circled around and were swinging chains and butterfly knives and mothknives and one fighter held CRANCH’S SPINAL COLUMN? They all went in at once and fell upon the Xohn, knocking her down off-camera but then she propellered herself up through the goon-pile and while she was in the air she spun around and fired a shot into every man before anyone hit the ground they were dead. XOhn put one of their disembodied hands on her hip and smirked; there she saw on the floor was a map to Kakbrak’s lair drewn in their sumptuous blood.
+ 
+Now I’ve got you
+
+Xohn woke up in front of the door to Kakbrak’s lair and opened it. Inside was the gang they were called the Black Bloodrippers their insignia was a gun wearing a black hood with razors. Kakbrak was there with his gangers. He had black obsidian skin like a pillar and his eyes had little tentacles and his right arm was a big metal lobster claw with a flamethrower welded on it. He was wearing a tight black and cool armbands. Xohn drew her photon lance and hopped on Samson and jousted at Kakbrak. “Okay” said Kakbrak “she’s alll your” and handed Xohn the keycard.
+
+But then look out, here come the agents. “Stop” said Agent Blackhole. “I work for the Agency of Extinction, and you are in a violation. We need you to fill out these forms.”
+
+“Sign on the dotted DEATH” retaliated Xohn and jumped up sticking her boots to the ceiling and shooting guns. Agent Blackhole and his grizzly partner Agent Buckwurst dive out of the way as the room was filled with a laser light show of laser shots. Kakbrak even joined in because the police and government are foes, live free. One gang member got shot.
+
+Xohn left the room and was sprinting around the corner on the ceiling still when she got to the other side of the corner and saw at the end of the hall was HIM. FATHER WAR. He had gills now because of evolutionary adaptation to the water. He was wearing a priest outfit but instead of black with a white collar it was red with a black color, because of blood and war. He held up his hand and said My child how long since your last confEXECUTION and a spring-loader hidden in his robe sleeves shot out and put a shotgun in his hand and he fired it and the bullets were small crosses.
+
+ Xohn summersalted forwards and slid on her knees across the ceiling firing slyly, but the war-priest was witty and spry. He dodged many shots, and Xohn had to drop down to the floor because Father War threw a gravity boomerang at the ceiling. There it was fight on. Xohn shot at Father War’s shoulders and most of the bullets didn’t make it. Father War pumped his shotgun and blasted right at Ms. Starstrucker but she dropped her barium pistol with custom space-mandrill leather grip and pulled out her two knives, known in some parts of the galaxy as the Twin Daughters of The Steel Armageddon. She used the knives to parry away the bits of shotblast and she was unscarved. Father War bit through his jaw. But then he was going to be more irate because Xohn’s gun was falling this whole time and it finally hit the floor and then the button on the bottom of the handle pressed and this was a secret button that shot out a grapple-dart from the tribes of Sapskrajj. It hit Father War in the ankle and he started to lean to the side off-balance. Xohn took this chance to run as she could hear the Extinction Agents scurrying down the hall behind her.
+ 
+As she passed War-Dad he grabbed at her but she cut his arm off.
+
+If you crossed Mother Theresa and Heffestus the greek god of hammers you would get Mother Smith and that is who came around the corner at the next intersection she wore a nun habit and had two blacksmith hammers and an eyepatch and some other greek stuff. She was the winner of the Nobel War Prize. Xohn was out of mana so she didn’t want to fit this foes and so she ran the other way. Behind her came the Agents and their red tape bureaucracy.
+
+Xohn slapped her boots and some plasma skis popped out the bottoms and she slalomed through the halls of the place. When she saw the door that the keycard unlocked, she skidded her skis and and skidaddled through the door. It opened Kakbrak’s prison hangar. Inside was trapped a great spaceship and a grizzled old captain how was haggard and unkempt and his crew, made up of a robot and a xenomoose.
+
+“Thank the Lord our Father Zeus and the Holy Ghost Sisyphus,” said Captain Crabapple, crutching forward on his crutch. He lost his leg in the war. “Kakbrak has had us captured here for seven-” but his words were cut out of his mouth by Xohn who used her knives to cut out his mouth. “Nice try impostor” she said wiping sweat and blood and bile from her own mouth. You are my crew now she stammered confidently at the other two folks. “I am Quoroban,” said the xenomoose in a deep voice he was a proud people. “This is Smeep” he gestured his burly paw toward the robot, who was metal but shaped like the eye of a hurricane. “This is our ship the *Death of Midnight”* the ship was black with red lines on the edges and the cockpit was a skull with a dark panther coming out.
+
+“I’m your captain from now” said Xohn as she sharpened her knives with a grim determination. She had aspirations.
+
+Xohn Quoroban and Smeep steered the ship out of the ship just as the door was being done in by the Agents and others and they took off into the sky and xohn’s other ship the *American Pharoah* also took off and it was starting to look like a fleet.
+
+    ‘ Ad Infinitum
+
+    To be conted.
